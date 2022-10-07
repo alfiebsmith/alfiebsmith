@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @alfiebsmith
+- 👀 I’m interested in beer, cyber security and computers
+- 🌱 I’m currently learning how to basic code
+- 📫 How to reach me via email, Signal, Twitter
